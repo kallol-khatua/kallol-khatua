@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kallol-khatua
+- 👀 I’m interested in web development, backend development and product building
+- 🌱 I’m currently learning more on this areas
+- 📫 How to reach me
+- linkedin: - https://www.linkedin.com/in/kallolkhatua2005/
+- instagram: - https://www.instagram.com/kallol_khatua/
